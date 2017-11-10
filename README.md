@@ -1,2 +1,0 @@
-# oa
-OA FOR MINGEN
